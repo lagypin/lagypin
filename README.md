@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @lagypin
-- 👀 I’m interested in reseaerch data management, pets, working out/lifting weights, and boardgames
+- 👀 I’m interested in research data management, pets, working out/lifting weights, and boardgames
 - 💞️ I’m looking to collaborate on research/writing related to data librarianship
 - 📫 How to reach me lagypin@gmail.com
 
